@@ -1,0 +1,6 @@
+- @Cryptarchon
+- new to this
+- a human
+- playing with ux
+- figuring stuff out
+- definitely not three rabbits in a trenchcoat
